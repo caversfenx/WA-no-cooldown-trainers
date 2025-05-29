@@ -1,0 +1,1 @@
+# WA-no-cooldown-trainers
